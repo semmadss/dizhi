@@ -1,6 +1,6 @@
 永久地址：http://www.semmdh.cc 
 
-当前地址：https://dobishe.com
+正在使用：https://dobishe.com
 
 最新地址1：https://semm.live
 
