@@ -1,6 +1,8 @@
-永久地址：http://www.semmdh.cc 
+永久地址：https://www.semmdh.cc 
 
-正在使用：https://dobishe.com
+正在使用：https://tamuqin.com
+
+即将失效：https://dobishe.com
 
 最新地址1：https://semm.live
 
