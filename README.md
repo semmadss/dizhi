@@ -1,14 +1,16 @@
 永久地址：https://www.semmdh.cc 
 
-正在使用：https://tamuqin.com
+正在使用：https://semm53.com
+
+即将失效：https://semm51.com
 
 即将失效：https://dobishe.com
 
-最新地址1：https://semm.live
+即将失效：https://semm.live
 
-最新地址2：https://semm.club
+即将失效：https://semm.club
 
-最新地址3：https://semm.world
+即将失效：https://semm.world
 
 当你发现色妹妹地址不能正常访问时，打开此发布页即可获取本站最新可用地址
 
